@@ -1,1 +1,1 @@
-# -Aesthetic-Jewelry.com
+# Aesthetic-Jewelry.com
